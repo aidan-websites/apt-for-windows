@@ -1,1 +1,1 @@
-# stuff for my friends since steam is dumb and only allows videos and images under 10MB
+# some random stuff maybe for my programs to auto update maybe to rickroll people who knows
